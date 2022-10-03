@@ -1,2 +1,2 @@
 #Demo
-pershkrimi i projektit, per cfare ben fjale
+pershkrimi i projektit, per cfare ben fjale!
